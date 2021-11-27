@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MRBISHTYT
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning BCA
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me :- Discord- https://dsc.gg/heya
