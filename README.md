@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MRBISHTYT
+- 👋 Hi, I’m @SEKIROSENSEI
 - 👀 I’m interested in Gaming
 - 🌱 I’m currently learning BCA
 - 💞️ I’m looking to collaborate on ...
